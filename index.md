@@ -8,4 +8,4 @@
 - Also I would eat food if it weren't too expensive
 - Gotta watch out for those tourist traps
 
-![customer service man]()
+![customer service man](assets/picture.jpg)
