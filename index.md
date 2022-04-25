@@ -1,4 +1,9 @@
-## About Steezy Sam Ellis
+## About Steezy Sam 
 
 ### Technical Skills Navigation
-- I am a good writer
+- My mom told me I am a bad writer, but I try my best
+- I like long walks on the beach
+- Just kidding
+- If I were on the beach, I would go swimming
+- Also I would eat food if it weren't too expensive
+- Gotta watch out for those tourist traps
